@@ -1,5 +1,5 @@
 Privacy Policy
-Mou apps built the فلفل app as a Commercial app. This SERVICE is provided by kinfo and is intended for use as is.
+Mou apps built the فلفل app as a Commercial app. This SERVICE is provided by Mou apps and is intended for use as is.
 
 This page is used to inform visitors regarding my policies with the collection, use, and disclosure of Personal Information if anyone decided to use my Service.
 
